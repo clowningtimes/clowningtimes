@@ -11,14 +11,16 @@
 
 <p align="center">  I really do enjoy when people come up and talk to me!!! So PLEASE if you like any of the skins I'm wearing or know where they're from, come and talk to me!! 
 
-Here's some skins I often wear!! 
+<p align="center"> Here's some skins I often wear!! 
 
 
 
 
-<p allign="left"><img src="https://github.com/user-attachments/assets/893ec4f7-a078-462a-8386-248421212b42"100 https:" height="230" border="10"/> <p allign="center"><img src="https://github.com/user-attachments/assets/e997a751-d1d4-4caa-b798-c5947b62be5d"100" height="230" border="10"/><p allign="center"><img src="https://github.com/user-attachments/assets/aaa5a5a4-cf61-497c-ba80-454a8794903e"100" height="230" border="10"/>
+<p align="middle"><img src="https://github.com/user-attachments/assets/893ec4f7-a078-462a-8386-248421212b42"100" height="400" border="10"/>
+<p align="center"><img src="https://github.com/user-attachments/assets/e997a751-d1d4-4caa-b798-c5947b62be5d"100" height="400" border="10"/>
+<p align="center"><img src="https://github.com/user-attachments/assets/aaa5a5a4-cf61-497c-ba80-454a8794903e"100" height="400" border="10"/>
 
-        
+    
 
 # <p align="center">𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊
 
