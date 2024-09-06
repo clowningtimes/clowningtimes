@@ -1,5 +1,13 @@
-![calvin]([!https://raw.githubusercontent.com/clowningtimes/clowningtimes/main/CAL%20PFP.webp](https://github.com/clowningtimes/clowningtimes/blob/f00564e1790085d73380955032b31b4e99e45b16/CALPFP.jpg))
+<p align="center"><img src="CALPFP.jpg"100" height="600" border="10"/>
+
+### <p align="center"> 🕸𓍊𓋼𓍊𓋼𓍊︻デ═一 ( ´ཀ` )♰𓍊𓋼𓍊𓋼𓍊🕸
+# <p align="center"> HELLO!!! 
+
+## <p align="center">$${\color{purple}Welcome \space To \space My \space Page!}$$
 
 
-## HELLO!!! 
+<p align="center"> You most likely came from ponytown, so hello! I'm Calvin and i'm normally sitting near the tf2 area/near the barrels! But I could be found hanging around other areas with my frineds! 
+
+
+
 
