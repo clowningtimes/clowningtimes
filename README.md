@@ -14,15 +14,20 @@
 Here's some skins I often wear!! 
 
 
-![ponytownyay](
 
 
+<p allign="left"><img src="https://github.com/user-attachments/assets/893ec4f7-a078-462a-8386-248421212b42"100 https:" height="230" border="10"/> <p allign="center"><img src="https://github.com/user-attachments/assets/e997a751-d1d4-4caa-b798-c5947b62be5d"100" height="230" border="10"/><p allign="center"><img src="https://github.com/user-attachments/assets/aaa5a5a4-cf61-497c-ba80-454a8794903e"100" height="230" border="10"/>
+
+        
+
+# <p align="center">𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊𓍊𓋼𓍊𓋼𓍊
 
 
+Though, here's a quick list of people I don't really like interacting with.. just so if I randomly hide you, you know why
 
-Though, here's a quick list of people I don't really like interacting with.. just so if I randomly hide you, you know why.
 
 ${\textsf{\color{Red}BTD or boyfriend to death fans, including any other games made by the creators.}}$
+
 ${\textsf{\color{Red}TCC, as much as I would love to learn more about true crime, a lot of the tcc is insanely edgy.}}$ 
 
  
